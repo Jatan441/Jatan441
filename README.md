@@ -1,4 +1,4 @@
-👋 Hi, I’m Jatan Choudhary an enthusiastic fresher to work in a professional environment with a growing organization and to put in the best efforts for the      technical enhancements of organization and astute learner to be the best performer in your organization.
+👋 Hi, I’m Jatan Choudhary an enthusiastic fresher to work in a professional environment with a growing organization and to put in the best efforts for the      technical enhancements of organization and astute learner to be the best performer in your organization.                                                         
 👀 I’m interested in Programming | Engineering Student | Communication | Exploring About New Things | Core Subjects
 🌱 I’m currently pursuing B.Tech in Computer Science and Engineering | Learning Programming languages and Computer Applications
 💞️ I’m looking to collaborate on in the field of programming as well as in digital
